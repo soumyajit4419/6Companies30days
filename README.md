@@ -9,3 +9,12 @@ Question Link:- https://docs.google.com/document/d/1KH9GVaUCET-y5SL5sg6DAnon9XwR
 ## 3. Microsoft
 
 Question Link:- https://docs.google.com/document/d/1sSyOTeZBVJExf0oytLVGk6Z34h1usFm4QRkr1Wb5ouk/edit
+
+## 4. Adobe
+
+Question Link:- https://docs.google.com/document/d/1cEAe63fC3YMJRwKmCoVOIXFUaFv5LqNXedxaGpaqd6U/edit
+
+
+## 5. Intuit
+
+Question Link:- https://docs.google.com/document/d/18oi6OlvcL3wYn20Jb9crW7NO4cGkL6vUfTvplNDGkTw/edit
